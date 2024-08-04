@@ -2,7 +2,7 @@
 ![AGUGUN](https://github.com/aggn-jp/main-page/blob/main/images/aguguncard.png)<br><br>
 ># 😎ここは[アググンのホームページ](https://アググン.jp/)です！😎<br>
 [n3mmy](https://github.com/n3mmy) , [みゅー](https://github.com/my3u)そして[🫀だるかすちゃん🫀](https://github.com/darui3018823)が気分で📓コード📓を更新します。<br>
-💻メインなデブ💻は💻n3mmy💻、そして💻サブデブ💻が💻だるかす💻、🍔🍿一番デブ🍿🍔が🍔🍿みゅー🍿🍔です<br>
+💻メインなデブ💻は💻n3mmy💻、そして💻サブデブ💻が💻🫀だるかすちゃん🫀💻、🍔🍿一番デブ🍿🍔が🍔🍿みゅー🍿🍔です<br>
 😎😎ちなみに🍔🍿みゅー🍿🍔は🕸️ドメイン🕸️取ったからいちばんえらいんだぞ‼️😎😎<br>
 🎉🎉💳アググン💳が出たら共有♻️しましょう！！🎉🎉<br><br>
 ># 使用用途<br>
